@@ -1,1 +1,1 @@
-# Creative-Jewelry
+# Creative Unique Handmade jewelry
